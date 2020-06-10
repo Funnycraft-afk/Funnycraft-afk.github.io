@@ -9,5 +9,5 @@ https://funnycraft-afk.github.io/hculture/
 https://funnycraft-afk.github.io/surfworld/
 
 
-Сайт визитка фирмы Bluerex
+Сайт-визитка фирмы Bluerex
 https://funnycraft-afk.github.io/bluerex/

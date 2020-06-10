@@ -6,7 +6,7 @@ https://funnycraft-afk.github.io/hculture/
 
 
 По всему земному шару разбросаны места где можно покататься на сёрфинге
-https://funnycraft-afk.github.io/surfclub/
+https://funnycraft-afk.github.io/surfworld/
 
 
 А здесь некая фирма бодро рапортует о своих успехах и возможностях
